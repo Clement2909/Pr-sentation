@@ -14,6 +14,7 @@ Je suis un étudiant passionné évoluant à l'IT University et à SAYNA, intér
 N'hésitez pas à me contacter pour toute opportunité de collaboration, de projet ou simplement pour discuter de sujets liés à l'informatique et à la technologie. Vous pouvez me joindre par :
 
 - Email : randrianasolo.clementvictorin@gmail.com
+- Linkedin : www.linkedin.com/in/clément-victorin-randrianasolo
 - Contact : +261326312603
 
 Je suis ouvert aux discussions et aux nouvelles connexions !
